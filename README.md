@@ -11,4 +11,6 @@ my name is worm and i use he/it. im transmasc and gay ^__^ you can also refer to
 
 proshippers, people who make offensive jokes, sexualizers (esp on the safe server), and people weird about dave's disability are getting perm hidden. 
 
+okay thats all <3
+
 ![transgender wedsen with dinosaurs and explosions](https://i.ibb.co/7rxSPYm/imgonline-com-ua-Compress-To-Size-3w6z-OBz-Icb-V9m-P.jpg)
