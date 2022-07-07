@@ -7,7 +7,7 @@ my name is worm and i use he/it. im transmasc and gay ^__^ you can also refer to
 - any kind of interaction is totally ok with me (boop, kiss, etc!)
 - i have trouble forming sentences so sometimes i might be bad at convo.
 - don't copy too heavily off my avatars pleek <3 
-- some avatars have trans headcanons: transfem gay dave (she/her), transmasc gay wedsen (he/it)
+- some avatars have trans headcanons: transfem gay dave (she/her), transmasc gay wedsen (he/it), transfem lesbian dandi (he/she)
 - **proshippers, people who make offensive jokes, sexualizers (esp on the safe server), and people weird about dave's disability are getting perm hidden.** 
 
 okay thats all <3
